@@ -4,7 +4,7 @@ layout: default
 permalink: /signup
 ---
 
-# Interview sign-up
+
 thank you for helping me with this endeavor! you are doing something great!  once you have submitted this form, please do not expect a response immediatly. i will do what i can to respond as soon as possible, but until then, assume that i am considering your request and adjusting the schedule. please be as honest as possible in everything you write below.
 
 
