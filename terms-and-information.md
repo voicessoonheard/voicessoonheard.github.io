@@ -6,12 +6,6 @@ permalink: /terms-and-information
 
 # Terms and information
 
-Hi! It’s me Wilson! If you are seeing this, that must mean you are considering letting me interview you! Thanks for that! Please read this before you continue on to the interview signup. 
+¡Hola! ¡Soy yo Wilson! Si está viendo esto, ¡debe significar que está considerando dejarme entrevistarlo! ¡Gracias por eso! Lea esto antes de continuar con el registro de la entrevista.
 
--If you are signing up for an interview, you need to understand that things may happen. If you share your full name, people who don’t believe the same things you do may try to find you and hurt you. I’m not saying this is guaranteed, but please be aware of it! 
--You must be from 10-16 years of age to get these interviews. The other ages are really important too but I’m trying to represent younger kids! Do not lie about your age please, this is an important project and these are important rules!
--You cannot sign other people up without their knowing consent.
--I do not condone foul language, so if you want an interview, I don’t want to hear any curse words at all. Thanks!
--know that I may not get to you right away if you sign up for an interview and be aware of that!
--if you have to cancel your interview request or scheduled interview, contact me with the email address you have registered
--that’s it! Thank you for considering and I hope to speak with you someday!
+-Si se está inscribiendo para una entrevista, debe comprender que pueden suceder cosas. Si comparte su nombre completo, las personas que no creen en las mismas cosas que usted pueden tratar de encontrarlo y lastimarlo. No digo que esto esté garantizado, ¡pero tenlo en cuenta! -Debe tener entre 10 y 16 años para obtener estas entrevistas. Las otras edades también son muy importantes, ¡pero estoy tratando de representar a los niños más pequeños! No mientas sobre tu edad, por favor, ¡este es un proyecto importante y estas son reglas importantes! -No puede inscribir a otras personas sin su consentimiento. -No apruebo el lenguaje soez, así que si quieres una entrevista, no quiero escuchar ninguna maldición. ¡Gracias! -Sabe que es posible que no me comunique con usted de inmediato si se inscribe para una entrevista y se da cuenta de eso. -si tiene que cancelar su solicitud de entrevista o entrevista programada, contácteme con la dirección de correo electrónico que ha registrado -¡Eso es! ¡Gracias por considerarlo y espero poder hablar con ustedes algún día!
